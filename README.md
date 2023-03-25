@@ -1,0 +1,1 @@
+A website for a fiction luxury jewelry brand that specialise in special occasions. Manganta and Gallo have an online store where shoppers can buy jewelries of their choice.
